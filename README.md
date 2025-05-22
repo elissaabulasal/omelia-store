@@ -1,4 +1,4 @@
-# 🌿 Omelia – Trendy Lifestyle Dropshipping Store
+# 🌿 Omelia – Trendy Lifestyle Store
 
 Welcome to **Omelia**, a modern lifestyle brand offering curated daily essentials that blend simplicity, comfort, and style.
 
